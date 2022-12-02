@@ -1,0 +1,3 @@
+The stone slabs of [[留园 The Lingering Garden]] contain [[model letters compendia 法帖]]. When [[Liu Shu 刘恕]] was assembling his garden, collecting [[model letters compendia 法帖]] was one of the only ways to collect calligraphy by the old masters of the Wei and Jin, dynasties. This is because all of the originals then belonged in the Qing dynasty imperial collection, the [[Shiqu Baoji 石渠宝籍]], original Tang Dynasty tracings of works by [[Wang Xizhi 王羲之]], [[Wang Xianzhi 王献之]] were inaccessible. Prof. McNair cites the example of [[Fengju Tie 奉橘帖]].
+
+#WangXizhi #WangXianzhi #ShiQuBaoJi #FengJuTie #LiuShu #LingeringGarden #ModelLettersCompendia #StoneCalligraphySlabs #王羲之 #王献之 #石渠宝籍 #奉橘帖 #留园 #刘园 #法帖 
