@@ -1,1 +1,0 @@
-copies of personal letters by famous past calligraphers engraved into stone and made to take ink-squeezes from. This is called: "lithography". 
