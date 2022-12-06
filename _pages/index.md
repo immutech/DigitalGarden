@@ -7,7 +7,7 @@ permalink: /
 
  [[怀素习字]]
 
-![picture of Huai Su](huaisu.jpg)
+![picture of Huai Su](./images/huaisu.jpg)
 
 <style>
   .wrapper {
