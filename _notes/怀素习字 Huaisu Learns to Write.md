@@ -1,5 +1,5 @@
 # 怀素习字
-## Huai Su learns to write
+## Huaisu learns to write
 
 ---
 
