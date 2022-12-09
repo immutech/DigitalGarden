@@ -32,3 +32,9 @@
 > 还告诉我们，学书法要有刻苦精神，要善于学习前人的书法，还要有创新精神。
 
 > They also show us that if you want to be a good calligrapher, you have to work hard, study the calligraphy of those who came before us, and innovate!
+
+Click on the links below to learn more about famous calligraphers from the past:
+
+[[蔡邕看碑 Cai Yong Admires a Stele]]
+[[飞白书的诞生 The Birth of Feibai Style]]
+[[张芝临池 Zhang Zhi by the Pond]]
