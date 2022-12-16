@@ -5,7 +5,7 @@ id: home
 permalink: /
 ---
 
- [[怀素习字 Huaisu Learns to Write]]
+ [[序言 Introduction]]
 
 ![picture of Huai Su](./images/huaisu.jpg)
 
