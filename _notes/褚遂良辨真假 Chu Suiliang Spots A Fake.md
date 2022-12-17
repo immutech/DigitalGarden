@@ -8,11 +8,11 @@ Chu Suiliang once spent a lot of time and effort studying a piece of calligraphy
 
 褚遂良在朝廷里做官。唐太宗[[Li Shimin 李世民]]也非常喜欢王羲之的书法。他曾下令到全国各的去搜集王羲之的字帖和真迹。不久就收集了三千二百多件，但是不知道哪些是真的，哪些是假的。怎么办呢？
 
-Chu Suiliang was an official in the Tang Court. Emperor Taizong, Li Shimin, was also a big fan of Wang Xizhi's calligraphy. He issued a nationwide decree in search of authentic works of calligraphy by Wang Xizhi. It wasn't long before the court had received over 3200 works. But they had a problem: how could they tell the real works from the fakes?
+Chu Suiliang was an official in the Tang Court. Emperor Taizong, Li Shimin, was also a big fan of Wang Xizhi's calligraphy. He issued a nationwide decree in search of authentic works of calligraphy by Wang Xizhi. It wasn't long before the court had received over 3200 works. But they had a problem: how could separate the real thing from the fakes?
 
 唐太宗派人把褚遂良找来，想先考考他。唐太宗叫人把名书法家[[Yu Shinan 虞世南]]生前临摹的《兰亭序》字帖拿来，然后很客气的对褚遂良说：“今天召见您，有一事相求：这有王羲之写的《兰亭序》帖，不知是真的还是假的？听说您对王羲之的字体很有研究，就请辨认一下吧。”说完，把那字帖传下去交给褚遂良。
 
-Emperor Taizong summoned Chu Suiliang: he wanted to test him. Emperor sent someone to fetch a copy of the *Preface to the Orchid Pavilion* which had been completed by the esteemed calligrapher Yu Shinan before his demise. Politely, the emperor addressed Chu Suiliang: "I summoned you here today as I have a favour to ask: this is *Preface to the Orchid Pavilion* by Wang Xizhi. Is it real or fake? I hear your quite the expert when it comes to Wang's calligraphy, could you take a look for me, please." with the wave of his hand, he had the work presented to Chu Suiliang. 
+Emperor Taizong summoned Chu Suiliang: he wanted to test him. Emperor sent someone to fetch a copy of the *Preface to the Orchid Pavilion* which had been completed by the esteemed calligrapher Yu Shinan before his demise. Politely, the emperor addressed Chu Suiliang: "I summoned you here today as I have a favour to ask: this is *Preface to the Orchid Pavilion* by Wang Xizhi. Is it real or fake? I hear you're quite the expert when it comes to Wang's calligraphy, could you take a look for me, please." with the wave of his hand, he had the work presented to Chu Suiliang. 
 
 褚遂良接过来，从纸的质地，色彩到字的笔划形态，认真地鉴别了一番。最后，他说：“奏陛下，这件《兰亭序》我看是假的，不是王羲之的真迹。”
 
