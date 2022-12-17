@@ -50,3 +50,5 @@ Click on the links below to learn more about famous calligraphers from the past:
 > [[鹅池 Goose Pond]]
 
 > [[题扇桥 Inscribed Fans Bridge]]
+
+> [[写字的“秘诀” The Secret of Writing Chinese Characters]]
