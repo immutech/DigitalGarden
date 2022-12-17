@@ -54,3 +54,5 @@ Click on the links below to learn more about famous calligraphers from the past:
 > [[写字的“秘诀” The Secret of Writing Chinese Characters]]
 
 >[[我不贪睡了 I Wont Take Naps Anymore]]
+
+>[[智永学字不下楼 Studying Calligraphy Zhi Yong Refuses to Leave His Study]]
