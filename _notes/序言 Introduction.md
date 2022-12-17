@@ -58,3 +58,5 @@ Click on the links below to learn more about famous calligraphers from the past:
 >[[智永学字不下楼 Studying Calligraphy Zhi Yong Refuses to Leave His Study]]
 
 > [[欧阳询下马观碑 Ouyang Xun Dismounts his Horse to Admire a Stele]]
+
+> [[褚遂良辨真假 Chu Suiliang Spots A Fake]]
