@@ -66,3 +66,5 @@ Click on the links below to learn more about famous calligraphers from the past:
 > [[草圣张旭 Zhang Xu Master of Cursive Script]]
 
 > [[怀素习字 Huaisu Learns to Write]]
+
+> [[颜真卿拜师 Yan Zhenqing Becomes an Apprentice]]
