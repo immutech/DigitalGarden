@@ -64,3 +64,5 @@ Click on the links below to learn more about famous calligraphers from the past:
 > [[李邕游七星岩 Li Yong Visits Qixing Gorge]]
 
 > [[草圣张旭 Zhang Xu Master of Cursive Script]]
+
+> [[怀素习字 Huaisu Learns to Write]]
