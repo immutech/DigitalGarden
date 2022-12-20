@@ -74,3 +74,5 @@ Click on the links below to learn more about famous calligraphers from the past:
 > [[在柿叶上练字 Practicing Calligraphy on Persimmon Leaves]]
 
 > [[黄庭坚过河 Huang Tingjian Crosses the River]]
+
+> [[饭前一千字 1000 Characters Before Breakfast]]
