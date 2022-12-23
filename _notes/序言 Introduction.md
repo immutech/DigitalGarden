@@ -77,4 +77,6 @@ Click on the links below to learn more about famous calligraphers from the past:
 
 > [[饭前一千字 1000 Characters Before Breakfast]]
 
-> [[消显写匾 Xiao Xian Writes A Placard]]
+> [[肖显写匾 Xiao Xian Writes A Placard]]
+
+> [[偷偷留存的手迹 Secretly Preserved Manuscripts]]
