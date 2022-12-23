@@ -80,3 +80,5 @@ Click on the links below to learn more about famous calligraphers from the past:
 > [[肖显写匾 Xiao Xian Writes A Placard]]
 
 > [[偷偷留存的手迹 Secretly Preserved Manuscripts]]
+
+> [[竹苞和草包 Zhu Bao and Cao Bao]]
