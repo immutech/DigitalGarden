@@ -88,3 +88,5 @@ Click on the links below to learn more about famous calligraphers from the past:
 > [[胡麻籽上的小楷 Regular Script Written on Sesame Seeds]]
 
 > [[驰名中外的梁同书 The World Renowned Liang Tongshu]]
+
+> [[用左手写字的钱坫 A Calligrapher Who Wrote with His Left Hand, Qian Dian]]
