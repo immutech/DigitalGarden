@@ -94,3 +94,5 @@ Click on the links below to learn more about famous calligraphers from the past:
 > [[敢于创新的刘墉 The Brave Innovator Liu Yong]]
 
 > [[自成一体 A Style of His Own Zheng Banqiao]]
+
+> [[旅途幸苦练字忙 Practicing Calligraphy on an Arduous Journey]]
